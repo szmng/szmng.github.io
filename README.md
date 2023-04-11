@@ -1,0 +1,1 @@
+# szmng.github.io
